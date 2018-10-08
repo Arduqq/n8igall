@@ -1,0 +1,25 @@
+---
+layout: post
+title:  "Intervention"
+date:   2018-10-09 00:00:34 +0200
+categories: reden
+---
+Ich bin müde – sage ich oft in den letzten Tagen, Wochen, Monaten. Man kann mich jederzeit fragen, wie meine aktuelle Stimmung ist und immer komme ich auf dasselbe leidige Thema. Eine Pause bräuchte man, eine Möglichkeit das Momentum auszunutzen, um in die nächste Welle an Aufgaben zu stürzen. Sehr oft sitzt man dann doch wie eine schon fast leblose Hülle vor dem Rechner, am Tisch oder auf dem Bett und denkt ganz eifrig darüber nach, was man nun machen könnte, um die plötzlich wertvolle Freizeit zu nutzen. Wohin kann ich gehen? Mit wem verbringe ich diese Zeit und vor allem wie kann ich das bestmögliche aus dem Moment herausholen.
+
+### Beschallung
+
+Folgendes Szenario: Ich persönliche esse nur selten ohne visuellen Input. Irgendetwas muss laufen während ich mir das Hühnerbrustfilet mit Reis den Rachen hinunter schiebe; egal was! Nun ja, halt irgendwas lustiges, lieber auf Englisch, aber nicht gezeichnet, und Filme sind gerade auch schwierig – wohl doch nicht so egal. Minute hinter Minute wird gescrollt und diskutiert. Das Essen rühre ich nicht an; das kann ja warten. Jeder Bissen ohne parallel konsumiertes Entertainment ist ein leerer, trauriger Bissen. Aber egal, ich muss ja nebenher etwas gucken – Fick auf das Essen. Und so geht das immer wieder. Eine konstante Flut an Serien, Videos und Filmen, offensichtlich, aber woher kommt dieser Drang so viel, wie möglich davon konsumieren zu wollen?
+
+Als würde man etwas verpassen. Viel mehr eine Suche nach etwas was einen beeindruckt, im Kopf bleibt und umdenken lässt. Umdenken und besonders ablenken. Wenn das mulmige Gefühl nicht produktiv gewesen zu sein einen schon nicht schlafen lässt, dann verteilt man sich diese Zeit eben und ist quasi doch irgendwie zufrieden mit sich selbst – so redet man sich das gerne schön. *Ich habe heute ein bisschen was geschafft.* – Nein, hast du nicht. *Morgen muss ich damit fertig werden.* – Hättest du das doch heute gemacht. *Es ist noch so viel zu tun.* – Verfickt richtig. Und diese Stimmen reden und reden bis man nur noch eins ist. *Müde*.
+
+Wie wird man das los? Die Reue, meine ich. Simpel – gar nicht. Wie wird man schon Gefühle los? Dem entgegenzuwirken ist das einzige Mittel und das ständige Ein- und Ausatmen hilft immer mal wieder auf die Beine zu kommen. Jede Beschwerde. Jedes *Ich bin müde.* ist gefolgt von einer kurzen Selbstreflexion. Worüber beschwerst du dich eigentlich? Mach deinen Job; da müssen alle durch. Sammel dich, plane. Organisiere weniger die Arbeit, sondern dein verdammtes Leben – so, dass du aufatmen kannst und es genießt! Auf etwas hinarbeiten, nicht versinken und vor allem durch viele neue Kanäle den komischen, aufdringlichen Gefühlen entgegenwirken.
+
+### Resonanz
+
+Mich umgeben Schätze. Menschen die gerne nachfragen, ob nun alles in Ordnung ist. Das schmeichelt mir – denke ich jedenfalls. Vor einigen Monaten habe ich mir gewünscht etwas Zuspruch zu bekommen, Komplimente für meine Leistungen zu erhaschen. Sowas ändert sich; es prallt dann doch nur noch ab. Unterstützung und Lob sind wundervoll und nur natürlich, aber seit wann führt es denn zu dieser dämlichen Ratlosigkeit? Alles packt man kurz an und hat ein kleines Erfolgserlebnis. Bleibe ich nun dran? Investiere ich die Zeit? Wird sich der Umfang an Vergnügen, den ich daraus ziehen werde überhaupt lohnen? So viel verdammte Zeit die für diese debilen Fragen draufgeht. In der Zeit hätte ich ein verficktes Baumhaus bauen können. Es ist einfach unmöglich alles anzufangen und an allem dranzubleiben. Umso schlimmer ist es sich etwas auszusuchen und daran konstant zugrunde zu gehen, weil man sich einredet, man könne es einfach nicht.
+
+Diese komische Suche nach dem großen Talent in sich. Eher der innere Schweinehund, der verzweifelt versucht einen Grund zu finden, warum man etwas nicht gut kann. Künstler mäkeln, wenn sie für ihr Talent beneidet werden, auch wenn sie schlicht weg Jahre dafür gebraucht haben durch kontinuierliche Übung besser zu werden. Diese Ambitionen nicht aufzuhören und immer weiter zu üben, auch wenn es mal nichts wird; beneidenswert. Ist es das Durchhaltevermögen? Die Gefühle während des Schaffensprozesses oder wirklich einfach nur etwas was gewisse Menschen für gewisse Sachen haben? Das verwirrt mich und dieses irrationale Gefühl die Zeit würde drängen will einfach nicht verschwinden. Und doch.
+
+### Zeitlosigkeit
+
+Da ist sie wieder – die unverhoffte Freizeit. Man möchte vergessen; verarbeiten. Wo bleibt der Regler, der mir endgültig sagt was gut für mich ist? Die Skala, die einem ganz pauschal angibt wie viel Zeit man wofür aufbringen könnte, sollte und möchte? Gedanken schwirren herum und man redet und redet und redet. Wo sind die Taten? Die waghalsigen Abenteuer, über die man sich so viele Gedanken macht? Sie verfliegen! Was wollte ich machen? Ist es nicht zu spät für sowas? Lohnt sich das noch? Es kann nur eine wirklich gute Gefühlslage geben und das ist wohl letztendlich die in der wir uns tatsächlich und ohne Hintergedanken eingestehen, dass das was wir gerade machen das für uns richtigste ist.
