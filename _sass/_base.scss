@@ -1,0 +1,19 @@
+$content-width: 75%;
+$sidebar-width: 25%;
+$main: #262422;
+$font-style: 'Work Sans', sans-serif;
+$font-color: #262422;
+$link-color: #635843;
+$link-hover-color: $main;
+$heading-font: 'Concert One', sans-serif;
+$heading-font-color: #635843;
+$light: #E7EDF4;
+$header: #3d3b39;
+
+*,
+*::before,
+*::after {
+	-webkit-box-sizing: border-box;
+	-moz-box-sizing: border-box;
+	box-sizing: border-box;
+}
