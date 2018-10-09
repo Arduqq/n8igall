@@ -84,5 +84,9 @@ footer {
     }
     header {
         flex: 0 0 0%;
+        position: fixed;
+        width: 10px;
+        left: 0;
+        top: 0;
     }
 }
